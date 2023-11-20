@@ -1,5 +1,5 @@
 # Akaybot-websitev1
-Akaybot website v1 made by chentouf#3066
+Akaybot website v1 made by Nik0tino
 
 ⚠️ | If You Want Share My Website Contact Me In Discord Before Share ✨
 
